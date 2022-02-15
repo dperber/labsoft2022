@@ -19,3 +19,5 @@ Grupo 9: Arendar (Gabriel Segado Moreno)
 Grupo 10: Kilutero (Fº Javier Sarabia Andreo)
 
 Grupo 11: evamariahg, MiriamRiouch y ppinneapple (Mercedes Navarro Martínez)
+
+Grupo 12: vgroking, fkaracic, markovic-jelena, lucija1
