@@ -20,4 +20,6 @@ Grupo 10: Kilutero (Fº Javier Sarabia Andreo)
 
 Grupo 11: evamariahg, MiriamRiouch y ppinneapple (Mercedes Navarro Martínez)
 
-Grupo 12: vgroking, fkaracic, markovic-jelena, lucija1
+Grupo 12: Alesx13, Alexcz21, albertlpz y Roberto9997
+
+Grupo 13: vgroking, fkaracic, markovic-jelena, lucija1
