@@ -12,12 +12,10 @@ Grupo 5: franmolina-77
 
 Grupo 6: fjavierms, VictorRuiz26, JoseGG5 (Jose Antonio García Gambín)
 
-Grupo 7: ppinneapple (Mercedes Navarro Martínez)
-
 Grupo 8: JoseTomasUPCT y Felipin2204
 
 Grupo 9: Arendar (Gabriel Segado Moreno)
 
 Grupo 10: Kilutero (Fº Javier Sarabia Andreo)
 
-Grupo 11: evamariahg y MiriamRiouch
+Grupo 11: evamariahg, MiriamRiouch y ppinneapple (Mercedes Navarro Martínez)
