@@ -10,9 +10,9 @@ Grupo 4: TxentxoGM (Vicente Gálvez Martínez)
 
 Grupo 5: franmolina-77
 
-Grupo 6: fjavierms y VictorRuiz26
+Grupo 6: fjavierms, VictorRuiz26, JoseGG5 (Jose Antonio García Gambín)
 
-Grupo 7: JoseGG5 (Jose Antonio García Gambín) y ppinneapple (Mercedes Navarro Martínez)
+Grupo 7: ppinneapple (Mercedes Navarro Martínez)
 
 Grupo 8: JoseTomasUPCT y Felipin2204
 
