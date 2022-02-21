@@ -14,10 +14,10 @@ Grupo 6: fjavierms, VictorRuiz26, JoseGG5 (Jose Antonio García Gambín)
 
 Grupo 8: JoseTomasUPCT y Felipin2204
 
-Grupo 9: Kilutero (Fº Javier Sarabia Andreo)
+Grupo 10: Kilutero (Fº Javier Sarabia Andreo)
 
-Grupo 10: evamariahg, MiriamRiouch y ppinneapple (Mercedes Navarro Martínez)
+Grupo 11: evamariahg, MiriamRiouch y ppinneapple (Mercedes Navarro Martínez)
 
-Grupo 11: Alesx13, Alexcz21, albertlpz y Roberto9997
+Grupo 12: Alesx13, Alexcz21, albertlpz y Roberto9997
 
-Grupo 12: vgroking, fkaracic, markovic-jelena, lucija1
+Grupo 13: vgroking, fkaracic, markovic-jelena, lucija1
