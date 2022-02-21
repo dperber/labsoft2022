@@ -4,7 +4,7 @@ Grupo 1: fjavier-fernandez y Carlos-Gonzalez-Cortado
 
 Grupo 2: raulmateo
 
-Grupo 3:javier5598
+Grupo 3:javier5598, Arendar (Gabriel Segado Moreno)
 
 Grupo 4: TxentxoGM (Vicente Gálvez Martínez)
 
@@ -13,8 +13,6 @@ Grupo 5: franmolina-77
 Grupo 6: fjavierms, VictorRuiz26, JoseGG5 (Jose Antonio García Gambín)
 
 Grupo 8: JoseTomasUPCT y Felipin2204
-
-Grupo 9: Arendar (Gabriel Segado Moreno)
 
 Grupo 10: Kilutero (Fº Javier Sarabia Andreo)
 
